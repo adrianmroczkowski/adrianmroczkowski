@@ -1,4 +1,4 @@
-## Hi there 👋 I'm Adrian, it is mine pleasure to have you here!!!
+## Hi there 👋 I'm Adrian, it is a pleasure to have you here!!!
 
 <!--
 
